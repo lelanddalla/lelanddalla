@@ -1,6 +1,6 @@
 #LATEST* Minecraft free account and password generator (mc alt token)
+~~~~~~~~~~~
 
-~~~~~~~~~~~~
 [STATUS: ONLINE] ( Online Members: 69854) [VERSION 7.12]
 
 Minecraft Account Generator. Currently you will find 301 accounts in the generator! Generate. alarm. Daily restocks. We refill every Account Generator each day with fresh new accounts. all_inclusive. Free to use. Our Account Generators are absolve to use. account_circle. Quality Accounts. Our Account Generators have the best account quality that you can get for free! altsforyou.org. Get high quality accounts for free
